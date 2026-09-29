@@ -1,0 +1,2 @@
+# GuilhermaBertoBarrosMontagnerMaximoMontanheriEsquiloVidottiPachecoGustamanteFredericeZeppeliniParis-
+ MICRORACE Biologia Rival Corrida Fórmula microscópica O sonho de ser o mais rápido. Em um mundo onde células são pistas e moléculas são obstáculos, uma pequena bactéria possui um grande sonho: tornar-se o organismo mais rápido do planeta.  F = m × a   |   ATP → Energia   |   v = Δs / Δt Começar corrida Ver ciência Biologia + Física A corrida acont
